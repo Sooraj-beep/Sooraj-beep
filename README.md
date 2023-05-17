@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there! I am a 4th year Computing Science student at the University of Alberta. Welcome to my profile!
+Hey there! I am a recent Computing Science graduate from the University of Alberta. Welcome to my profile!
 
 
 ## 🌐 Socials:
